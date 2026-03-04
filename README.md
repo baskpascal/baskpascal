@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Linux<br><br>I do like some codes
+W Speed <br><br>
 
 
 # 💻 Tech Stack:
